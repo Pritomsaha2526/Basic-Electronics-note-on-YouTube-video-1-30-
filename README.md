@@ -1,0 +1,1 @@
+# Basic-Electronics-note-on-YouTube-video-1-30-
